@@ -1,0 +1,1 @@
+# Contract terms placeholder
